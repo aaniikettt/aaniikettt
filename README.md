@@ -15,5 +15,5 @@ As a dedicated and inquisitive Data Scientist, I bring a robust analytical found
 I am currently exploring opportunities to bring my unique blend of skills and passion for data to a dynamic new role. If you're looking for someone who can translate complex datasets into meaningful business value, let's connect!
 
 
-- 📧 Email: aniket.uos@yahoo.com
+- 📧 Email: aniket.ds@protonmail.com
 - 🤝 LinkedIn: [linkedin.com/in/anikettt](https://linkedin.com/in/anikettt)
